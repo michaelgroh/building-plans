@@ -2,7 +2,7 @@
 
 ## Notes ##
 
-These instructions as written product a piece that is actually 19 1/8 x 19 1/8 x 18. Must reconfigure.
+These instructions as written produce a piece that is actually 19 1/8 x 19 1/8 x 18. Must reconfigure.
 
 ## Shopping List ##
 
